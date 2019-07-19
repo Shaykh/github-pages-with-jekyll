@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome on the Shaykh's blog
 
-I'm glad you are here. I plan to talk about ...
+This is the blog of Diaby Cheick Mahomed Lamine. In this blog the main opic will be about IT.
